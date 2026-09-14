@@ -18,6 +18,23 @@
 
 Ꮺ ENG/PT-BR (kinda)
 
+# FRIENDS!<img width="26" height="26" alt="image" src="https://github.com/user-attachments/assets/1a048ff3-dbeb-4816-886e-85dff53c2d65" />
+
+જ⁀➴ ♡ Max! (my love) 
+
+Ꮺ Scarlett
+
+Ꮺ Ella
+
+〰︎〰︎〰︎〰︎
+
+Ꮺ Oliver
+
+Ꮺ Funkbeat 
+
+Ꮺ Izzy
+
+P.S: ɪ sᴇᴇ ᴀʟʟ ᴛʜᴇsᴇ ᴘᴇᴏᴘʟᴇ ᴀs ғʀɪᴇɴᴅs ᴏʀ ғʀɪᴇɴᴅʟʏ ᴀᴄǫᴜᴀɪɴᴛᴀɴᴄᴇs! 
 
 # DNI LIST.
 
