@@ -34,7 +34,6 @@
 
 Ꮺ Izzy
 
-P.S: ɪ sᴇᴇ ᴀʟʟ ᴛʜᴇsᴇ ᴘᴇᴏᴘʟᴇ ᴀs ғʀɪᴇɴᴅs ᴏʀ ғʀɪᴇɴᴅʟʏ ᴀᴄǫᴜᴀɪɴᴛᴀɴᴄᴇs! 
 
 # DNI LIST.
 
@@ -61,7 +60,7 @@ P.S: ɪ sᴇᴇ ᴀʟʟ ᴛʜᴇsᴇ ᴘᴇᴏᴘʟᴇ ᴀs ғʀɪᴇɴᴅs ᴏ�
 
 — I’m very emotional so please don’t bring up my family problems too much (jokes are fine tho!)
 
-— When we get close, I might get very attached and/or excited about everything, please tell me if it’s too much
+— When we get close, I might get very attached and/or excited about everything we do together, please tell me if it’s too much
 
 — Don’t be mean, in general, I will cry 
 
