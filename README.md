@@ -20,13 +20,11 @@
 
 # FRIENDS!<img width="26" height="26" alt="image" src="https://github.com/user-attachments/assets/1a048ff3-dbeb-4816-886e-85dff53c2d65" />
 
-♡ Lou! 
+Ꮺ Lou!
 
 Ꮺ Scarlett
 
 Ꮺ Ella
-
-〰︎〰︎〰︎〰︎
 
 Ꮺ Funkbeat 
 
